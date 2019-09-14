@@ -69,13 +69,13 @@ Please enter your choice: 4
 
 Quitting ReconXcript.....
 
-~Made with ♥ by ReconXcript team:
+~Made with ♥ by ReconXcript RikUS-ViRUS:
 
->> Kishan
->> Kamal
->> Michael
->> Sai
->> Sumit
+>> www.facebook.com/RIKUSVIRUSX
+>> www.rikusvirus.blogspot.com
+>> RIKUS VIRUS
+>> RiKUS-ViRUS
+>> ROO XRiNKON
 
 ~Under mentorship of >> Meenakshi ma'am
 
